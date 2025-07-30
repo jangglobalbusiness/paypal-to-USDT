@@ -1,14 +1,12 @@
-# upwork
+# Paypal to USDT
 
 Hi There<br>
-Thanks for applying to this job.<br>
-I am Jang, I am an expert wordpress and shopify with lots of experiences for 12 years. I would discuss an opportunity with you.<br>
-I saw you don't use upwork account mostly, so I would use your upwork account using Anydesk, Teamviewer or something else.<br>
-I don't need anything for account information, I just want to use your account through remote tools, send proposal and get jobs, then we will share the profit. The profit rate will be 20% of the withdraw funds from upwork.
-But there is a requirement. When I try to get jobs, clients want to call for interview, I want you pass the interview, then I will manage everything, Let's build longterm partnership.
-Please let me know what you think.<br>
+Thanks for searching.<br>
+I am Jang, I am a business manager, I am handling Paypal payment to USDT conversion.<br>
+The conversion percentage is just 94%.<br>
 My email is just jangglobalbusiness@gmail.com<br>
-My skype: live:.cid.68ba25766be7fefe
+I will send the USDT immediately.<br>
+Let's discuss in email<br>
 
 Thank you
 Jang

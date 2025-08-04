@@ -8,5 +8,8 @@ My email is just jangglobalbusiness@gmail.com<br>
 I will send the USDT immediately.<br>
 Let's discuss in email<br>
 
+Buy Tether with PayPal Instantly
+
+
 Thank you
 Jang
